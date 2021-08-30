@@ -1,5 +1,5 @@
-### Hi, Waddap👋
-- 🌱 Currently **Coder** ...
+### Waddap👋
+- 🌱**Coder..**
 - 💬 Ask me dav4business@gmail.com
 - ⚡ Fun fact: **Need love :)**
 
