@@ -1,7 +1,4 @@
-### Waddap👋
-- 🌱**Coder..**
-- 💬 Ask me dav4business@gmail.com
-- ⚡ Fun fact: **Need love :)**
+### Waddap... fun fact: *Need love*
 
 ### Language and Tools:
 <p align="left">
